@@ -11,3 +11,5 @@ Eng:I made this game in 4 hours, I don't take any responsibility if the code doe
 
 French: J'ai réalisé ce jeu en 4 heures, je décline toute responsabilité si le code ne fonctionne pas
     ╰─‌⌲essayez d'utiliser un autre IDE
+
+[scritto il 09-05-2024 ore 17:09:12] 
