@@ -16,7 +16,7 @@
 
 
 
-      ----------------------------------------------------------------------Attenzione,se il codice non funziona,il creatore non è responsabile di alcun bug fatto,se la perosna che trova dei bug...uhmmmm.boh-----------------------------------------------------------------------
+      ----------------------Attenzione,se il codice non funziona,il creatore non è responsabile di alcun bug fatto,se la perosna che trova dei bug...uhmmmm.boh---------------------------
 
 
 
