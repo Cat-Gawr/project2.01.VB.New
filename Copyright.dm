@@ -29,4 +29,7 @@
 
 
 
-                                                                                                                                                                  file scritto alle ore 21:05 del 9/05/2024                                                                          .......
+                                                                                                                                                                  file scritto alle ore 21:05 del 9/05/2024      ------------->                                        file modificato il venerdì del 
+                                                                                                                                                                                                                                                                       10-05-2024 alle ore 15:27 
+
+                                                                                                                                                                  link discord group:
