@@ -32,4 +32,6 @@
                                                                                                                                                                   file scritto alle ore 21:05 del 9/05/2024      ------------->                                        file modificato il venerdì del 
                                                                                                                                                                                                                                                                        10-05-2024 alle ore 15:27 
 
-                                                                                                                                                                  link discord group:
+                                                                                                                                                                  link discord group:https://discord.com/channels/1228801646801322094/1228801647505834088
+
+  :D
